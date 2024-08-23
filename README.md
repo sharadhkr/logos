@@ -1,4 +1,4 @@
-![YiFsC2lITZGnVK8uSq491A](https://github.com/user-attachments/assets/73b127f3-2af8-4525-aaaf-b3226d6423b9)
+![YiFsC2lITZGnVK8uSq491A](https://github.com/user-attachments/assets/73b127f3-2af8-4525-aaaf-b3226d6423b9) width="100"
 ![xO2XvwM6RIG277OKLJW1WQ](https://github.com/user-attachments/assets/db77f007-867e-4536-ab7a-f90973c4ed82)
 ![xCxqd6ZCSDasIPnK7ITt0w](https://github.com/user-attachments/assets/4e63213f-165a-45ec-94ef-9b43fe258bd9)
 ![White Logo Mockup on Black Textile - PHOTOPEA](https://github.com/user-attachments/assets/4a8ef04f-fc21-44ee-913b-43080aa04a38)
