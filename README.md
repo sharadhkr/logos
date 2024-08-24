@@ -78,4 +78,3 @@
 <img src="https://github.com/user-attachments/assets/0382bddb-82fe-488b-9073-2836d7868697" width="200" height="auto" />
 <img src="https://github.com/user-attachments/assets/45fca0ff-e905-456f-a1ca-92547a551fbf" width="200" height="auto" />
 <img src="https://github.com/user-attachments/assets/cc8812a3-ced2-4ddb-bc1a-1c1f446b301b" width="200" height="auto" />
-<img src="https://github.com/user-attachments/assets/4c5cd383-1c4c-408b-a39a-1a56ad99ef6e" width="200" height="auto" />
